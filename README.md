@@ -17,7 +17,7 @@
 
 - ⚡ Fun fact **I speak 4 languages!**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: kalp2801@gmail.com/ https://www.linkedin.com/in/drkalppatel/
 <p align="left">
 </p>
 
